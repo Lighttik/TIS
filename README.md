@@ -13,6 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Richard Meszaros
-2.
+2. Veronika Benkova
 3.
 4.
