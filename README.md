@@ -15,4 +15,4 @@ Nas tim tvoria clenovia:
 1. Richard Meszaros
 2. Veronika Benkova
 3. Martin Slimak
-4.
+4. Magdalena Kozubalova
